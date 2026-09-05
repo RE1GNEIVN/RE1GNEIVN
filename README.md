@@ -1,4 +1,4 @@
-<img width="1720" height="1570" alt="Image" src="https://github.com/user-attachments/assets/25ce495a-9d1a-42f0-ba5a-13a2e1e5e6bb" />
+<img width="1720" height="1570" alt="Image" src="https://github.com/user-attachments/assets/54628f9c-e38b-44d8-9858-490d0aae76b9" />
 
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎<img width="19" height="19" alt="Image" src="https://github.com/user-attachments/assets/cd8846d1-b699-4f52-8528-ee28bd4dae63" />
  ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ *FAJRIL /* $\text{\color{#6c94ad}REI}$ */ KAI* ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎. ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎—  STRAIGHT ALLY ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ **‎&& [INFP](https://www.16personalities.com/infp-personality)** ‎ ‎ ‎ ‎ ‎
