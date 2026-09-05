@@ -10,4 +10,4 @@
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  free int as long as my name **$\text{\color{#47649f}does not containt some DNI}$** ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎‎ ‎<img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/00da9fa4-1693-4ab0-8ed8-7ac87a729723" />
  ‎  ‎ ‎*HE / HIM* ‎ ‎ ‎ ‎ ‎ 
 
-<img width="736" height="331" alt="Image" src="https://github.com/user-attachments/assets/485c07bb-53a7-4ee9-8f89-154e4900346f" />
+<img width="1224" height="736" alt="Image" src="https://github.com/user-attachments/assets/74c88620-c20f-4df0-b211-9a1afff1ef02" />
