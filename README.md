@@ -1,5 +1,6 @@
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎‎‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 
 <div align="center">
- <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Caveat&size=50&letterSpacing=1.5&pause=1000&color=7CDFFA&center=true&vCenter=true&width=600&height=56&lines=Can+we+go+home+now%3F+;It's+getting+late+baby..+;Can+we+go+home+now%3F+;You+think+it's+time+to+give+up;We're+on+our+own+now;No+place+to+drive+you+crazy!+" alt="Typing SVG" /></a>
+ <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Caveat&size=40&letterSpacing=1.5&duration=3000&pause=300&color=7CDFFA&center=true&vCenter=true&width=600&height=56&lines=Can+we+go+home+now%3F+;It's+getting+late+baby..+;Can+we+go+home+now%3F+;You+think+it's+time+to+give+up;We're+on+our+own+now;No+place+to+drive+you+crazy!+" alt="Typing SVG" /></a>
 </div>
 <br>
 
