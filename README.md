@@ -1,17 +1,44 @@
 <div align="center">
- <img width="400" height="370" alt="Image" src="https://github.com/user-attachments/assets/54628f9c-e38b-44d8-9858-490d0aae76b9" />
-</div>
+<img src="https://file.garden/amIhX8QeMk0LFMpD/ifrogt/ok.." width="500">
 
-‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ <img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/b3a36146-28e2-4661-b8c7-e7eebf10aaee" />
- ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ *FAJRIL /* $\text{\color{#6c94ad}REI}$ */ KAI* ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎. ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎—  STRAIGHT ALLY ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ **‎&& [INFP](https://www.16personalities.com/infp-personality)** ‎ ‎ ‎ ‎ ‎
-‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎
+<br>
 
-‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎‎ ‎ i have a beautiful [wife](https://github.com/C4NIBAYL1SM3) since 2023. ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎<img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/fa45cfb5-33b4-41c0-a8d5-1bbec5a8af98" />‎ ‎ ‎ ‎ ‎ ‎────────
-‎ ‎ ‎ ‎ ‎ 26  .  11‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎‎ $\text{\color{#fbd1ab}. BASIC DNI}$
+ 
+<img width="460" height="460" alt="Image" src="https://github.com/user-attachments/assets/391802e6-1120-4e98-af60-98db1ac1fb03" align="right"/>
+<br>
 
-‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎  ‎  free int as long as my name **$\text{\color{#47649f}does not containt some DNI}$** ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎‎ ‎<img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/00da9fa4-1693-4ab0-8ed8-7ac87a729723" />
- ‎  ‎ ‎*HE / HIM* ‎ ‎ ‎ ‎ ‎ 
+<br>
 
-<div align="center">
- <img width="600" height="350" alt="Image" src="https://github.com/user-attachments/assets/74c88620-c20f-4df0-b211-9a1afff1ef02" />
-</div>
+<table>
+  <tr>
+    <td> 
+
+ㅤ ㅤ 
+ㅤㅤ $${\color{#f4621e}nova orㅤ}$$ $${\color{#ad978b} reign }$$ㅤㅤㅤ
+
+ㅤㅤㅤㅤㅤㅤㅤ $${\color{#c12372}he/him}$$ㅤㅤㅤㅤㅤㅤㅤㅤ
+
+
+ㅤㅤㅤㅤㅤ<img width="150" height="120" alt="Image" src="https://github.com/user-attachments/assets/bf1e049a-aa15-4f1c-90b8-3e8aedd4c104" />
+
+ㅤㅤㅤ [rentry](https://forcas.atabook.org)⠀⠀⠀⠀[half-life](https://github.com/dollachyreiss)⠀⠀⠀⠀ㅤㅤㅤ ㅤ
+
+ㅤ ㅤ 
+
+   </td>
+  </tr>
+</table>
+
+
+
+
+
+ <details>
+  <summary> </summary>
+
+
+
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ 、‎ ‎‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ STRAIGHT ALLY‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎‎‎ ‎ ‎︵ ♡' ‎ ‎‎ ‎‎ ‎ ‎ ‎ ‎ INFP‎ ‎ ‎ ‎　.　 ‎ basic Dni, i don't have boundaries.‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎‎free int AS LONG MY NAME DOESN'T CONTAINT SOME DNI! ‎ ‎‎ ‎ ‎‎ ‎‎<br>
+
+</details>
+
