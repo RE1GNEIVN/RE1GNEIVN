@@ -19,7 +19,7 @@
 ㅤㅤㅤㅤㅤㅤㅤ $${\color{#c12372}he/him}$$ㅤㅤㅤㅤㅤㅤㅤㅤ
 
 
-ㅤㅤㅤㅤㅤ<img width="150" height="120" alt="Image" src="https://github.com/user-attachments/assets/bf1e049a-aa15-4f1c-90b8-3e8aedd4c104" align="center" />
+ㅤㅤㅤㅤㅤ<img width="150" height="120" alt="Image" src="https://github.com/user-attachments/assets/bf1e049a-aa15-4f1c-90b8-3e8aedd4c104" />
 
 ㅤㅤㅤ [rentry](https://forcas.atabook.org)⠀⠀⠀⠀[half-life](https://github.com/dollachyreiss)⠀⠀⠀⠀ㅤㅤㅤ ㅤ
 
