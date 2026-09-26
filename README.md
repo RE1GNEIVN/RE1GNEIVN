@@ -1,6 +1,6 @@
 <div align="center">
-<img src="https://file.garden/amIhX8QeMk0LFMpD/ifrogt/ok.." width="500">
-
+ <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Caveat&size=50&letterSpacing=1.5&pause=1000&color=7CDFFA&center=true&vCenter=true&width=600&height=56&lines=Can+we+go+home+now%3F+;It's+getting+late+baby..+;Can+we+go+home+now%3F+;You+think+it's+time+to+give+up;We're+on+our+own+now;No+place+to+drive+you+crazy!+" alt="Typing SVG" /></a>
+</div>
 <br>
 
  
@@ -14,9 +14,9 @@
     <td> 
 
 ㅤ ㅤ 
-ㅤㅤ $${\color{#f4621e}nova orㅤ}$$ $${\color{#ad978b} reign }$$ㅤㅤㅤ
+ㅤㅤ $${\color{#DE3C00}nova orㅤ}$$ $${\color{#FAB34D} reign }$$ㅤㅤㅤ
 
-ㅤㅤㅤㅤㅤㅤㅤ $${\color{#c12372}he/him}$$ㅤㅤㅤㅤㅤㅤㅤㅤ
+ㅤㅤㅤㅤㅤㅤㅤ $${\color{#67D6FA}he/him}$$ㅤㅤㅤㅤㅤㅤㅤㅤ
 
 
 ㅤㅤㅤㅤㅤ<img width="150" height="120" alt="Image" src="https://github.com/user-attachments/assets/bf1e049a-aa15-4f1c-90b8-3e8aedd4c104" />
