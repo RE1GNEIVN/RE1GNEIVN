@@ -4,7 +4,7 @@
 <br>
 
  
-<img width="380" height="380" alt="Image" src="https://github.com/user-attachments/assets/391802e6-1120-4e98-af60-98db1ac1fb03" align="right"/>
+<img width="320" height="320" alt="Image" src="https://github.com/user-attachments/assets/391802e6-1120-4e98-af60-98db1ac1fb03" align="right"/>
 <br>
 
 <br>
@@ -19,7 +19,7 @@
 ㅤㅤㅤㅤㅤㅤㅤ $${\color{#c12372}he/him}$$ㅤㅤㅤㅤㅤㅤㅤㅤ
 
 
-ㅤㅤㅤㅤㅤ<img width="150" height="120" alt="Image" src="https://github.com/user-attachments/assets/bf1e049a-aa15-4f1c-90b8-3e8aedd4c104" />
+ㅤㅤㅤㅤㅤ<img width="150" height="120" alt="Image" src="https://github.com/user-attachments/assets/bf1e049a-aa15-4f1c-90b8-3e8aedd4c104" align="center" />
 
 ㅤㅤㅤ [rentry](https://forcas.atabook.org)⠀⠀⠀⠀[half-life](https://github.com/dollachyreiss)⠀⠀⠀⠀ㅤㅤㅤ ㅤ
 
