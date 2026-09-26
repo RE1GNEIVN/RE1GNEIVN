@@ -37,7 +37,7 @@
  <details>
   <summary> </summary>
 
-‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ 、‎ ‎‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ STRAIGHT ALLY‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎‎‎ ‎ ‎︵ ♡' ‎ ‎‎ ‎‎ ‎ ‎ ‎ ‎ INFP‎ ‎ ‎ ‎　.　 ‎ basic Dni, i don't have boundaries.‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎‎free int AS LONG MY NAME DOESN'T CONTAINT SOME DNI! ‎ ‎‎ ‎ ‎‎ ‎‎<br>
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ 、‎ ‎‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ STRAIGHT $${\color{#F64F4C}ALLY}$$‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎‎‎ ‎ ‎︵ ♡' ‎ ‎‎ ‎‎ ‎ ‎ ‎ ‎ $${\color{#3BABE4}INFP}$$‎ ‎ ‎ ‎　.　 ‎ basic Dni, ‎ ‎　 　 $${\color{#EEF07B}i don't have}$$ boundaries.‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎‎free int AS LONG MY NAME DOESN'T $${\color{#AAF8E7}CONTAINT SOME DNI!}$$ ‎ ‎‎ ‎ ‎‎ ‎‎<br>
 
 </details>
 
