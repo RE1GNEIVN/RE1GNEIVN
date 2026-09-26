@@ -22,7 +22,7 @@
 
 ㅤㅤㅤㅤㅤ<img width="150" height="120" alt="Image" src="https://github.com/user-attachments/assets/bf1e049a-aa15-4f1c-90b8-3e8aedd4c104" />
 
-ㅤㅤㅤ [rentry](https://rentry.co/REIZUYA)⠀⠀⠀⠀[half-life](https://github.com/dollachyreiss)⠀⠀⠀⠀ㅤㅤㅤ ㅤ
+ㅤㅤㅤ [rentry](https://rentry.co/REIZUYA)⠀⠀︵⠀⠀[half-life](https://github.com/dollachyreiss)⠀⠀
 
 ㅤ ㅤ 
 
@@ -36,8 +36,6 @@
 
  <details>
   <summary> </summary>
-
-
 
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ 、‎ ‎‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ STRAIGHT ALLY‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎‎‎ ‎ ‎︵ ♡' ‎ ‎‎ ‎‎ ‎ ‎ ‎ ‎ INFP‎ ‎ ‎ ‎　.　 ‎ basic Dni, i don't have boundaries.‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎‎free int AS LONG MY NAME DOESN'T CONTAINT SOME DNI! ‎ ‎‎ ‎ ‎‎ ‎‎<br>
 
