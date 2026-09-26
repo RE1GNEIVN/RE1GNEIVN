@@ -15,7 +15,7 @@
     <td> 
 
 ㅤ ㅤ 
-ㅤㅤ $${\color{#DE3C00}nova orㅤ}$$ $${\color{#FAB34D} reign }$$ㅤㅤㅤ
+ㅤㅤ $${\color{#DE3C00}nova ,ㅤ}$$ $${\color{#FAB34D} reign }$$ㅤㅤㅤ
 
 ㅤㅤㅤㅤㅤㅤㅤ $${\color{#67D6FA}he/him}$$ㅤㅤㅤㅤㅤㅤㅤㅤ
 
@@ -37,7 +37,8 @@
  <details>
   <summary>‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎ ‎ $${\color{#‎FAB34D} Taken}$$　 　 ‎ ‎　.　 ‎ ‎　 　 $${\color{#DE3C00} ‎7teen!}$$‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　  </summary>
 
-‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ 、‎ ‎‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ STRAIGHT $${\color{#F64F4C}ALLY}$$‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎‎‎ ‎ ‎︵ ♡' ‎ ‎‎ ‎‎ ‎ ‎ ‎ ‎ $${\color{#3BABE4}INFP}$$‎ ‎ ‎ ‎　.　 ‎ basic Dni, ‎ ‎　 　 $${\color{#EEF07B}i don't have}$$ boundaries.‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎‎free int AS LONG MY NAME DOESN'T $${\color{#AAF8E7}CONTAINT SOME DNI!}$$ ‎ ‎‎ ‎ ‎‎ ‎‎<br>
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ 、‎ ‎‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ STRAIGHT $${\color{#F64F4C}ALLY}$$‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎‎‎ ‎ ‎︵ ♡' ‎ ‎‎ ‎‎ ‎ ‎ ‎ ‎ $${\color{#3BABE4}INFP}$$‎ ‎ ‎ ‎　.　 ‎ basic Dni, ‎ ‎　 　 $${\color{#EEF07B}i don't have}$$ boundaries.‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎‎free int AS LONG MY NAME DOESN'T CONTAINT SOME $${\color{#AAF8E7} DNI!}$$ ‎ ‎‎ ‎ ‎‎ ‎‎<br>
 
 </details>
 
+‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 
