@@ -35,7 +35,7 @@
 
 
  <details>
-  <summary>‎ ‎　 　 ‎ 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎ ‎ $${\color{#‎FAB34D} Taken}$$　 　 ‎ ‎　.　 ‎ ‎　 　 $${\color{#DE3C00} ‎7teen!}$$‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　  </summary>
+  <summary>‎ ‎　 　 ‎ ‎ ‎ $${\color{#‎FAB34D} Taken}$$　 　 ‎ ‎　.　 ‎ ‎　 　 $${\color{#DE3C00} ‎7teen!}$$‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　  </summary>
 
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ 、‎ ‎‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ STRAIGHT $${\color{#F64F4C}ALLY}$$‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎‎‎ ‎ ‎︵ ♡' ‎ ‎‎ ‎‎ ‎ ‎ ‎ ‎ $${\color{#3BABE4}INFP}$$‎ ‎ ‎ ‎　.　 ‎ basic Dni, ‎ ‎　 　 $${\color{#EEF07B}i don't have}$$ boundaries.‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎‎free int AS LONG MY NAME DOESN'T CONTAINT SOME $${\color{#AAF8E7} DNI!}$$ ‎ ‎‎ ‎ ‎‎ ‎‎<br>
 
